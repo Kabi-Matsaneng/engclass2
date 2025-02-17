@@ -1,1 +1,1 @@
-# niggas from paris are rare
+# nigglets from paris are rare
